@@ -1,6 +1,5 @@
 ### Daniel Perkins- @danielperkinsii 
-Hey, I'm Daniel! I'm a freelance web developer based in the midwest, interested in collaborating on new projects while building a bigger client base
-. I previously worked in construction, but wanted more room for creativity so I sought software as my new craft. I love learning, networking, and building. 
+Hey, I'm Daniel! I'm a freelance web developer based in the midwest, interested in collaborating on new projects while building a bigger client base. I previously worked in construction, but wanted more room for creativity so I sought software as my new craft. I love learning, networking, and building. 
 
 Connect with me and let's work together! 🤠
 
