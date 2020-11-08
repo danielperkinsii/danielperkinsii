@@ -18,7 +18,7 @@ I'm at my best when I'm [time blocking](https://todoist.com/productivity-methods
 *However, I love networking and will carve out time to build new relationships.*
 
 ## Let's connect!
--📷 [Instagram](https://www.instagram.com/93dannyp/)
--🐣 [Twitter](https://twitter.com/danielperkinsii)
--👨‍💼 [LinkedIn](https://www.linkedin.com/in/daniel-perkins-b477871a7/)
--👨‍🎨 [My Site](danielperkinsii.herokuapp.com/)
+- 📷 [Instagram](https://www.instagram.com/93dannyp/)
+- 🐣 [Twitter](https://twitter.com/danielperkinsii)
+- 👨‍💼 [LinkedIn](https://www.linkedin.com/in/daniel-perkins-b477871a7/)
+- 👨‍🎨 [My Site](danielperkinsii.herokuapp.com/)
