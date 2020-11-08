@@ -7,7 +7,7 @@ Hey, I'm Daniel! I'm a freelance web developer based in the midwest interested i
 - 😺  My cat.
 - 🎵  Pretty much all music.
 - 👨‍💻  Learning technologies.
-- 📚  Reading mystery, business, history, finance, design, and biographies.
+- 📚  Reading mystery, business, history, finance, design, sci-fi, and biographies.
 - 🎙  Podcasts about tech, science, news, Kentucky sports, philosophy, and creativity.
 - 🏃💨  Running between 5k and 50k.
 - 🏔  New challenges.
