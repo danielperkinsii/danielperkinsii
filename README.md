@@ -9,7 +9,7 @@ Connect with me and let's work together! 🤠
 - 🎵  Pretty much all music.
 - 👨‍💻  Learning technologies.
 - 📚  Reading mystery, business, history, finance, design, sci-fi, and biographies.
-- 🎙  Podcasts about tech, science, news, Kentucky sports, philosophy, and creativity.
+- 🎙  Podcasts about Kentucky sports, tech, science, news, philosophy, and creativity.
 - 🏃💨  Running between 5k and 50k.
 - 🏔  New challenges.
 
