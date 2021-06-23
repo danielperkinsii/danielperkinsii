@@ -13,13 +13,6 @@ Connect with me and let's work together! 🤠
 - 🏃💨  Running between 5k and 50k.
 - 🏔  New challenges.
 
-## How I work 
-I'm at my best when I'm [time blocking](https://todoist.com/productivity-methods/time-blocking) my tasks. I try to minimize meetings for the sake of meeting. My philosophy is that if it can be said in a meeting, it can probably be said in an email, and if it can be said in an email, it can probably be said in a text. 
-
-*However, I love networking and will carve out time to build new relationships.*
-
 ## Let's connect!
-- 📷  [Instagram](https://www.instagram.com/93dannyp/)
 - 🐣  [Twitter](https://twitter.com/danielperkinsii)
 - 👨‍💼  [LinkedIn](https://www.linkedin.com/in/daniel-perkins-b477871a7/)
-- 👨‍🎨  [My Site](danielperkinsii.herokuapp.com/)
